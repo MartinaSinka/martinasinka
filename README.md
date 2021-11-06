@@ -1,5 +1,4 @@
 ### Hi there 👋 
-Here is what I'm currently working on!
 
 Here are some ideas to get you started:
 
